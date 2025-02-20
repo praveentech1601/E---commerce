@@ -25,18 +25,3 @@ Email me Now **praveenkumar21555@gmail.com** to get this Full Project Code, PPT,
 ### Mail : praveenkumar21555@gmail.com 
 
 ### WhatsApp: **+91 8235068421**
-
-### Website : https://www.finalproject.in/
-
-### 1000 Computer Science Projects : https://www.computer-science-project.in/
-
-### More Web Dev Project : https://youtube.com/playlist?list=PL5g-9zkOohaFVr4-D344gUd-2vGMot-18&si=7Z--kjOJghZno4bv
-
-Mail/Message me for Projects Help 🙏🏻
-
-### Liked Project?
-If you Like Idea/ Research Paper/Project then Mail or Click on Star button🙏🏻
-
-**This is Open Source Web development Project**
-
-### Web Development Projects Playlist : https://youtube.com/playlist?list=PL5g-9zkOohaFVr4-D344gUd-2vGMot-18
